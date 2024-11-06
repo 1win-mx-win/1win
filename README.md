@@ -1,4 +1,4 @@
-<h1><a href="https://1win1.mxt/">1win </a> México: Una Guía Completa</h1>
+<h1><a href="https://1win1.mx/">1win </a> México: Una Guía Completa</h1>
     <p>1win México se destaca como un operador importante en el ámbito de las apuestas en 2022. Atrae a una clientela internacional, aunque su mayor grupo de usuarios proviene de México. La empresa, que comenzó en 2016 bajo el nombre FirstBet, obtuvo en 2018 una licencia de la Comisión de Juego eGaming de Curazao y adoptó el nombre de 1win. A continuación, se presenta una tabla con las características principales de este portal de apuestas.</p>
     <table border="1">
         <tr>
